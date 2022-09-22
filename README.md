@@ -5,4 +5,4 @@ Don't over buy. Keep track of what you've bought and used. As savor we suggest t
 Check the use-by dates of fresh food when you buy it. These are the dates to take notice of, rather than the best-before dates. Only buy what you can use before it expires.
 Plan ahead. Think about what you're going to cook and how you'll use the leftovers.
 Get to know your grocer. They will have plenty of advice on how to use up leftover veg.
-Love your freezer. Use your weekends to batch-cook and freeze. There are plenty of freezing tips in our guide.
+Love your freezer. Use your weekends to batch-cook and freeze. There are plenty of freezing tips in our [guide](www.savor.com).
